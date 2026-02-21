@@ -1,4 +1,4 @@
-# 🚀 Agentic AI for Beginner – Code & Resources
+#  All things AI  #
 
 Welcome! 👋
 
